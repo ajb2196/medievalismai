@@ -1,3 +1,0 @@
-# medievalismai
-# medievalismai
-# medievalismai
